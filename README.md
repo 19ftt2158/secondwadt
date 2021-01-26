@@ -1,4 +1,4 @@
 # secondwadt
-There's no strangers to love
+There's no students to love
 you know the rules
 and so do I
